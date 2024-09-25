@@ -1,0 +1,1 @@
+# ParadigmasT1
